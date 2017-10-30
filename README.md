@@ -1,2 +1,2 @@
-# M.Q
+# M.Q<sup>®</sup>
 Military Q
